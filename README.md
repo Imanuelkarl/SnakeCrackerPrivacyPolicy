@@ -35,5 +35,5 @@ We may update this Privacy Policy from time to time. We will notify you of any m
 
 Contact Us:
 
-If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at [darealgames@gmail.com].   
+If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at [darealsoft@gmail.com].   
 
